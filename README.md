@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DropKill
+- 👀 I’m interested in learn anything... but i like python programing and ethical hacking
+- 🌱 I’m currently learning python and linux
+- 📫 You can text me to riddimdropkill@gmail.com 
+- Also i like to make music :)
